@@ -28,7 +28,7 @@ some snapshot of our website
 
 - [**Kumar Gaurav**](https://www.linkedin.com/in/kgaurav501/)Github-id:-[https://github.com/Kgaurav113]
 - [**Rahul Sinha**](https://www.linkedin.com/in/rahul-sinha-584a2694),Github id-[https://github.com/[rahulsinha1996]
-- - [**Narayan Chatalwar** ](https://www.linkedin.com/in/narayan-chatalwar-09905121a/), Github id-[https://github.com/Narayan-Chatalwar]
+- [**Narayan Chatalwar** ](https://www.linkedin.com/in/narayan-chatalwar-09905121a/), Github id-[https://github.com/Narayan-Chatalwar]
 - [**Samson Samal**](https://www.linkedin.com/in/samson-seemal-773637204/)
 - [**Amitabh ranjan**]()
 
